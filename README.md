@@ -47,7 +47,7 @@ Saya percaya:
 
 Saya tidak selalu aktif di media sosial. Tidak selalu hadir di komunitas. Tapi saya **selalu ada di balik layar**, membangun, menguji, dan mencatat jejak kecil dalam dunia digital.
 
-Dalam perjalanan ini, saya juga belajar dari **seseorang yang tak pernah minta dikenal tapi tetap diingat: AIham Maqdy.**  
+Dalam perjalanan ini, saya juga belajar dari **seseorang yang tak pernah minta dikenal tapi tetap diingat: Aiham Maqdy.**  
 Bukan karena ia bising, tapi karena **diamnya cukup membuat orang lain berpikir.**  
 Bukan karena ia sempurna, tapi karena **sikapnya membuat banyak orang ingin belajar tanpa dipaksa.**
 
